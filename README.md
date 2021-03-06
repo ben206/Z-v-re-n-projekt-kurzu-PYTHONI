@@ -1,0 +1,1 @@
+# Z-v-re-n-projekt-kurzu-PYTHONI
